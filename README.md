@@ -1,1 +1,1 @@
-![Pixel Art Gifs - GIFs - Imgur](https://github.com/user-attachments/assets/c3243f9d-3f6a-4eeb-972c-c2bf4d175249)
+![Cold, rainy day by bbrunomoraes](https://github.com/user-attachments/assets/25565980-4401-41a1-8f0c-2e179a63befd)
